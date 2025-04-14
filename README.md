@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... any GOOD PROJECT
 - 📫 How to reach me ... contact email
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... FUN?
+- ⚡ Fun fact: ... FUN
 
 <!---
 BrahmanandaGoutham/BrahmanandaGoutham is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
