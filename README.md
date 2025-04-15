@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BrahmanandaGoutham
 - 👀 I’m interested in ... CRYPTO PROJECTS cricket
 - 🌱 I’m currently learning ... WEB3 SKILLS
-- 💞️ I’m looking to collaborate on ... any GOOD PROJECT
+- 💞️ I’m looking to collaborate on ... any GOOD PROJECTS 
 - 📫 How to reach me ... contact email
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... FUN
