@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... CRYPTO PROJECTS cricket
 - 🌱 I’m currently learning ... WEB3 SKILLS, crpto knowledge
 - 💞️ I’m looking to collaborate on ... any GOOD PROJECTS 
-- 📫 How to reach me ... contact email
+- 📫 How to reach me ... contact email 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... FUN FACT.
 
