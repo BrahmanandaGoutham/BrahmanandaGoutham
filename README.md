@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BrahmanandaGoutham
 - 👀 I’m interested in ... CRYPTO PROJECTS cricket IPL RCB bfc karnataka 2025
-- 🌱 I’m currently learning ... WEB3 SKILLS, crpto knowledge
+- 🌱 I’m currently learning ... WEB3 SKILLS, crpto knowledge, anything
 - 💞️ I’m looking to collaborate on ... any GOOD PROJECTS 
 - 📫 How to reach me ... contact email 
 - 😄 Pronouns: ...
